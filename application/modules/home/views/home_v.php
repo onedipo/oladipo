@@ -1,0 +1,9 @@
+
+
+<H1> Life is not all Rosy but the destination is! </H1>
+</br>
+<p>Do you know people love the rosy life? You my reader do. I do too. But from the fall of man in Eden, life is now a school and a life not tested is not worth living.
+ Unfortunately, we are not trained to handle the thorns that life throws at us. Every day we encounter different shades of problems and challenges.
+ The banks are solving problems, schools are solving problems, and the government is solving problems.</br> 
+ You? What are you doing? Don’t stay long with the problem, solve it. Go for your dream! Check out people whose life you admire today they’ve got issues. 
+ </p><p>If you don’t have issues drop this and rush to get one. No issue no victory, no victory you become part of life stories without glory. Jesus the king of glory was crucified--He emerged resurrected and thus we know that passing through is only a path to resurrection. Jesus kept focus and kept reaching out for the future He came to fulfill. The woman with the issue of blood suffered like many are today. She wasted her resources in seeking solutions from people who claim to have the expertise. One day she came to herself when she encountered Jesus. Jesus is the answer from where you are to the future you desire but you are your biggest ally in reaching solution to any challenge in life. The woman with the issue of blood knew in her heart that Jesus brings solution. Never believe less! Then she took her part -active faith- If I may touch the hem of his garment. Then she stood up regardless of her weakness. She pushed through the crowd. Refuse to let people’s negativity or hostility stop you. And she got to Jesus and he stood. Read this story again and may God open your eyes to the principles of what you ought to do concerning your life right now.</p>

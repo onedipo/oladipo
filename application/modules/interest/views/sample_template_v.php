@@ -1,0 +1,3 @@
+<?php
+<p> This is the main view</p>
+?>
